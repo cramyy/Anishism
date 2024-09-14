@@ -59,7 +59,7 @@ Becoming an Anishian is as simple as falling into an existential crisis:
 
 Leadership? Organization? Surely you jest. Our hierarchy is flat—mostly because no one bothered to structure it. But in case you’re curious, here’s how you can rise (or fall) through the ranks:
 
-1. **The First Laugher** – The founder, as bewildered as the rest of us.
+1. **Anish** 
 2. **The Puzzled Few** – Senior Anishians who have contributed the most chaos to the faith.
 3. **The Clueless Many** – Everyday Anishians who participate in optional, non-binding spiritual events.
 4. **The Confused Contributors** – Individuals who submit changes without understanding why.
