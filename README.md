@@ -31,7 +31,6 @@ While the tenets of Anishism are, at best, a starting suggestion, here are a few
 
 8. **Literal Afterlife Directions**  
    Many religions offer a clear roadmap to the afterlife—complete with golden gates, harps, or a fiery underworld. In **Anishism**, we provide only the vaguest Google Maps pin titled “Somewhere Over Yonder” and wish you luck with that spiritual GPS signal.
-Certainly! Here's a satirical addition, with a bit of playful commentary on misconceptions in other religions:
 
 9. **No need of Huge Temples/Cathedrals/Mosques**  
      In Anishism, our holy sites include places like AnishHub, Anish's hamster, your commode, and even your messy backlit keyboard. These are the places where true spiritual revelations happen... usually by accident.
